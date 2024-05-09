@@ -9,15 +9,15 @@
 
 - 👯 I’m looking to collaborate on **Google**
 
-- 🤝 I’m looking for help with **كله ع الله مش عاوزين مساعده من حد**
+- 🤝 I’m looking for help with
 
 - 👨‍💻 All of my projects are available at [the webstie will be available soon](the webstie will be available soon)
 
-- 💬 Ask me about **anything**
+- 💬 Ask me about
 
-- 📫 How to reach me **salemfathymohamed@gmail.com**
+- 📫 How to reach me **salemfathymohamed111@gmail.com**
 
-- ⚡ Fun fact **ana el mtrshm , fager , abo galabya**
+- ⚡ Fun fact
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
